@@ -1,4 +1,4 @@
-# 
+# Custom GIMP tools for Mac OS | Automatic GIMP tools for PC Windows. Featuring shader-editor and reference-window — optimized for maximum performance on every platform.
 
 
 
