@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://BeatPeasantSpeed.github.io/gimp-pcwinmac-xa34/ ) |
  |---------------------|----------------------:|
 
 
